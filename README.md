@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ignatiusjoell
+- 👀 I’m interested in Digital Marketing and Content Creation
+- 🌱 I’m currently learning Communication Science
+- 📫 How to reach me ignatiusrezkyjoel8@gmail.com
